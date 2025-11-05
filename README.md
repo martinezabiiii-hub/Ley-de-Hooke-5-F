@@ -1,1 +1,0 @@
-# Ley-de-Hooke-5-F
